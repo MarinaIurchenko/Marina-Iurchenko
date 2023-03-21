@@ -4,5 +4,5 @@
 
  город Санкт-Петербург
 
- tv-series-the-simpsons-51316.jpg
+ 
 
